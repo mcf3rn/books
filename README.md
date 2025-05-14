@@ -20,3 +20,4 @@ Commerce Secretary Gina Raimondo said Tuesday that the US will rally allies in o
 According to Chomsky, the education of women will help reduce the global population in a humane way. It has been shown to lead to sharp population reduction in both rich and poor countries. 
 
 Phasing out fossil fuel consumption is beneficial on environmental grounds but it is still a job killer. Everyone other than the rich coastal elites care more about jobs than the environment. 
+Mazzocchi wrote in 1993: "Paying people to make the transition from one kind of economy to another is not welfare. Those who work with toxic materials on a daily basis... in order to provide the world with the energy and the materials it needs deserve a helping hand to make a new start in life."
