@@ -18,3 +18,5 @@ The US is seeking ways to pressure China to hep avert climate catastrophe. It wa
 Commerce Secretary Gina Raimondo said Tuesday that the US will rally allies in order to mount pressure on the world's second-largest economy. "If we really want to slow down China's rate of innovation, we need to work with Europe," Raimondo said. They prime method is to deny access to the computer chips necessary for advanced technology.
 
 According to Chomsky, the education of women will help reduce the global population in a humane way. It has been shown to lead to sharp population reduction in both rich and poor countries. 
+
+Phasing out fossil fuel consumption is beneficial on environmental grounds but it is still a job killer. Everyone other than the rich coastal elites care more about jobs than the environment. 
