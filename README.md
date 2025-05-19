@@ -27,3 +27,5 @@ West Virginia is one of the most fossil fuel-dependent state economies in the US
 The decline of the fossil fuel industry will be occurring in conjunction with the rapid expansion of the clean energy economy. This will provide a basic supportive foundation for advancing effective community transition policies. One important example has been the integration of clean renewable energy sources -- primarily wind and solar power -- into Alaska's long-standing and extensive energy microgrid infrastructure. A microgrid is a localized power grid. Since the 1960's, these grids have been heavily reliant on diesel generators. But since 2005, renewable energy has become an increasingly significant alternative to diesel fuel. 
 
 Today, more than 70 of Alaska's microgrids, which represent approximately 12 percent of renewably powered microgrids in the world, incorporate grid-scale renewable generation, including small hydro, wind, geothermal, solar, and biomass. --Alaska Center for Energy and Power
+
+In Australia, Germany, and the US, another important development is creating pumped storage hydropower sites in now defunct coal mines.
