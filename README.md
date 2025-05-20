@@ -29,3 +29,6 @@ The decline of the fossil fuel industry will be occurring in conjunction with th
 Today, more than 70 of Alaska's microgrids, which represent approximately 12 percent of renewably powered microgrids in the world, incorporate grid-scale renewable generation, including small hydro, wind, geothermal, solar, and biomass. --Alaska Center for Energy and Power
 
 In Australia, Germany, and the US, another important development is creating pumped storage hydropower sites in now defunct coal mines.
+
+What does global just transition entail, and wha sort of new relationships of power need to be created since the world remains divided by huge differences between rich countries and poor countries?
+What are now the globe's high-income countries, including the US, Western Europe, Japan, Canada, and Australia, are primarily responsible for loading up the atmosphere with greenhouse gas emissions and causing climate change. They therefore should be primarily responsible for financing the Global Green New Deal. 
