@@ -4,3 +4,5 @@
 
 ### Author's Note
 On Cuba is not really about Cuba itself but about the suffocation that the US has tried to implement against Cuba. It is based on material interests and the need by the US government to destroy any defiance of its role in the world and on a culture of cruelty  that has set in among officials of the government against Cuba. Anger towards defiance has built a culture of cruelty toward the Cuban Revolution and the people who live there. It is illustrated by the casual statements issued by US officials. 
+Despite the intensity of the US campaign to overthrow the Cuban Revolution and despite the grave difficulties of building any kind of project in an island that has been embargoed by the most powerful country in the world since 1960, the Cuban people have resisted. We cannot think of another case like this in the world where a small country engulfed by the worlds most powerful state manages to survive and succeed in many ways. 
+The health statistics in Cuba are better than those in the US. 
