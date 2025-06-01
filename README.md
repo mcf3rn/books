@@ -11,3 +11,4 @@ The conversations in this book range from the Bay of Pigs attack to the placemen
 
 ### Foreword
 Noam Chomsky's contributions to linguistic and communication theory and works like "Manufacturing Consent" are mandatory in universities around the world.
+Chomsky delivered a lecture at the World Social Forum in Porto Alegre, Brazil. It was held in a soccer stadium.
