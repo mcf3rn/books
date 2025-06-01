@@ -10,3 +10,4 @@ This book originates during an afternoon in Havana while visiting singer Silvio 
 The conversations in this book range from the Bay of Pigs attack to the placement of Cuba on the US State Sponsors of Terrorism list.  Unity is found in the view that the US government has been vindictive toward the Cuban Revolution because it has successfully defied Washington and it has offered a socialist model for the rest of the Third World. That is the core argument of this book. The presiden of Cuba, Miguel Diaz-Canel, wrote the foreword to On Cuba. Diaz-Canel took over from Raul Castro who took the top job in cuba from Fidel Castro. He walks around the island to explain to people the nature of their crisis and to gather their hopes together to continue their struggle. 
 
 ### Foreword
+Noam Chomsky's contributions to linguistic and communication theory and works like "Manufacturing Consent" are mandatory in universities around the world.
