@@ -19,4 +19,4 @@ Akira-Sensei tells John the story of a boy in Sweden named Ingvar Kamprad who so
 Some things can only be experienced to be fully learned.
 
 ### Chapter 4 -- One Eye For The Journey
-The monotony began to wear on John and he was only allowed to shoot 4 hours at a target 7 feet away.
+The monotony began to wear on John and he was only allowed to shoot 4 hours at a target 7 feet away. He asked Akira-sensei how long it would take to become an archer. He said that in the West, people want things instantly, but here you must fall in love with the process. He had a Skype call with family and it was said that the Phil Jackson book "Eleven Rings" says, to control he controllables. Akira-sensei said it would take 10 years to become an archer. But time went on and John's shots became more precise and powerful. Then he told him, "it takes longer because with one eye on the goal, you only have one eye on the journey." He went on to say that no man climbs a mountain all at once. He climbs it by making one solid step at a time.
