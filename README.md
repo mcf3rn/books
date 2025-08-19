@@ -42,3 +42,5 @@ John wrote down: Courage, Boldness, Empathy, Loving, Grateful, Persistence, Joyf
 Now he chose his top four: Boldness, courage, loving, resourceful, persistence.
 Akira smiled now that the apprentices finisehd writing their new scorecard. They grade themselves around the middle of the day to know which areas to focus on that evening.
 John used that 4x6 note card as a practical tool for developing into the man he wanted to become. 
+
+### Chapter 8 -- Evil's Best Weapon
