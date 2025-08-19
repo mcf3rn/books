@@ -30,3 +30,15 @@ Despite Akira's warnings, John was taking extra time to practice archery until h
 Akira left John with this, "Find your identity in something that cannot simply be stripped away in a moment, and do the hard work of reminding yourself that your value comes from who you are. For me, my identity comes from being a child of God and knowing that He recklessly and unconditionally loves me. I believe He feels the same about you and already unconditionally loves you. It has never been about your performance, and it never will be about your performance. You can't do anything to make Him love you any more or any less. Therefore, you are free to accept His love, love Him back, love yourself, and finally be freed to love others with no strings attached..."
 
 ### Chapter 7 -- Guzzling Salt Water
+John and Akira watch basketball once a week on television and make a comment about Kobe Bryant and people in general striving to achieve one more goal before being satisfied. "But if achievement hasn't filled that void to date, how is achieving more going to fill it in the future? 
+*Like thirsty people guzzling salt water, achievement only creates a greater desire for accomplishing more, dehydrating us of true satisfaction and fulfillment.*
+After Andre Agassi made it to number one in the world in tennis, he said, 'I thought that getting to number one was going to be the moment I mende sense of my life. But it left me a little empty, and I spiraled down.'
+Have you noticed that some of the most beautiful people have troubling relationships or wealthy people have sleepless nights?
+..."
+He also talked about a man from South Korea in a similar manner and says,
+"...*The scorecard society judges us by is tragically flawed, and pursuing it will leave you completely unfulfilled.*
+It is time we develop a new scorecard for how we define a truly successful life. I want you to think about a few people that you truly admire, and write out what characteristics they embodied that you would like to be known for."
+John wrote down: Courage, Boldness, Empathy, Loving, Grateful, Persistence, Joyful, Resourceful.
+Now he chose his top four: Boldness, courage, loving, resourceful, persistence.
+Akira smiled now that the apprentices finisehd writing their new scorecard. They grade themselves around the middle of the day to know which areas to focus on that evening.
+John used that 4x6 note card as a practical tool for developing into the man he wanted to become. 
