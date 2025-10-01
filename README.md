@@ -44,4 +44,6 @@ Akira smiled now that the apprentices finisehd writing their new scorecard. They
 John used that 4x6 note card as a practical tool for developing into the man he wanted to become. 
 
 ### Chapter 8 -- Evil's Best Weapon
-One summer, it was too hot and humid to chop wood and carry water. They stopped early to go to the lake. 
+One summer, it was too hot and humid to chop wood and carry water. They stopped early to go to the lake. Akira tells them the story of "Evil's Best Weapon." 
+A witch was going out of business and sold her evil tools. Ones that make you think of jealousy, anger, lust, pride, envy, deceit, and adultery.
+By the end of the day only a few trash heaps of worn-out broken tools remained. One man was intrigued by one in particular and wanted to buy it but the witch said it was too valuable and wanted to pass it down to her neice. She took the tool back to her house. It was the only unsold tool. 
