@@ -50,3 +50,7 @@ By the end of the day only a few trash heaps of worn-out broken tools remained. 
 It was so worn, yet she valued it the most and didn't want to tell him what it was. She pried it from his hands and told him to leave. When the witch was on her deathbead she called for her neice who was upset about her selling all the fancy tools instead of passing them down. The witch showed her the old tool and she was surprised. The witch said, "How naive you are, this tool is discouragement and it's more powerful than all the other tools combined."
 "...Discouragement will allow you to get into a person's heart when none of the other tools will, and once they become discouraged, they are putty in your hands. You can squash the most powerful of dreams, level the greatest of ideas, and ruin almost anything in the world without detection, all by using this tool to plant the seeds of discouragement."
 The niece went on to become one of the most powerful witches ever to live.
+
+Akira told John, "...discouragement is powerful and comes in different forms. Make sure you always keep your guard up, nad fuel your heart with encouragement."
+John asked, "How do I fuel my heart?"
+Akira listed six things: what you watch, read, listen to, who you surround yourself with, how you talk to yourself, and what you visualize..."
