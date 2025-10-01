@@ -44,3 +44,4 @@ Akira smiled now that the apprentices finisehd writing their new scorecard. They
 John used that 4x6 note card as a practical tool for developing into the man he wanted to become. 
 
 ### Chapter 8 -- Evil's Best Weapon
+One summer, it was too hot and humid to chop wood and carry water. They stopped early to go to the lake. 
