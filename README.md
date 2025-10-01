@@ -54,3 +54,5 @@ The niece went on to become one of the most powerful witches ever to live.
 Akira told John, "...discouragement is powerful and comes in different forms. Make sure you always keep your guard up, nad fuel your heart with encouragement."
 John asked, "How do I fuel my heart?"
 Akira listed six things: what you watch, read, listen to, who you surround yourself with, how you talk to yourself, and what you visualize..."
+
+If you put the wrong fuel in your gas tank, it is very easy to get discouraged and break down as you go through the journey of life.
