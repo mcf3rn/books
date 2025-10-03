@@ -58,4 +58,4 @@ Akira listed six things: what you watch, read, listen to, who you surround yours
 If you put the wrong fuel in your gas tank, it is very easy to get discouraged and break down as you go through the journey of life.
 
 ### Chapter 9 -- What Went Well?
-John wasn't able to shoot as well as normal one day.
+John wasn't able to shoot as well as normal one day. Oh my God he became mentally distracted by the fit of his new shooting guard.
