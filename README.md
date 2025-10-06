@@ -59,3 +59,4 @@ If you put the wrong fuel in your gas tank, it is very easy to get discouraged a
 
 ### Chapter 9 -- What Went Well?
 John wasn't able to shoot as well as normal one day. Oh my God he became mentally distracted by the fit of his new shooting guard.
+He felt like a failure.
