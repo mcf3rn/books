@@ -60,3 +60,5 @@ If you put the wrong fuel in your gas tank, it is very easy to get discouraged a
 ### Chapter 9 -- What Went Well?
 John wasn't able to shoot as well as normal one day. Oh my God he became mentally distracted by the fit of his new shooting guard.
 He felt like a failure.
+Akira asked, "Why do you think it's so hard for you to think of what you did well?"
+John said that he doesn't think about it because he doesn't want a big head.
